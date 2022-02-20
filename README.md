@@ -1,4 +1,4 @@
 я топ)))
 
 
-вк: vk.com/all_online_ballun
+вк: https://vk.com/all_online_ballun
